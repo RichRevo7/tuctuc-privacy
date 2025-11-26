@@ -159,7 +159,7 @@ Puedes acceder a tu información personal desde la app (Perfil > Editar Perfil).
 Puedes actualizar tu información en cualquier momento.
 
 ### 7.3 Eliminación
-Puedes solicitar la eliminación de tu cuenta contactándonos a: **soporte@revolorio.dev**
+Puedes solicitar la eliminación de tu cuenta contactándonos a: **tuctuc.soporte@gmail.com**
 
 ### 7.4 Portabilidad
 Puedes solicitar una copia de tus datos contactándonos.
@@ -190,9 +190,8 @@ Tu uso continuo de la app después de los cambios constituye tu aceptación de l
 
 Para preguntas, solicitudes o quejas sobre esta Política de Privacidad:
 
-**Email**: tuctuc.soporte@gmail.com
-**WhatsApp**: +502 1234-5678 (Servicio al Cliente)  
-**Sitio Web**: https://revolorio.dev
+**Email**: tuctuc.soporte@gmail.com  
+**WhatsApp**: +502 5974-1146 (Servicio al Cliente)  
 
 ---
 
