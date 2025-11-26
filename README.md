@@ -191,7 +191,7 @@ Tu uso continuo de la app después de los cambios constituye tu aceptación de l
 Para preguntas, solicitudes o quejas sobre esta Política de Privacidad:
 
 **Email**: tuctuc.soporte@gmail.com  
-**WhatsApp**: +502 5974-1146 (Servicio al Cliente)  
+**WhatsApp**: [+502 5974-1146 (Servicio al Cliente)](https://wa.me/message/L7JRU5Y5JENKL1)  
 
 ---
 
